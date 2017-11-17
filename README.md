@@ -1,0 +1,2 @@
+# cryptofanatics
+cryptocurrency only
